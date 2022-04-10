@@ -15,3 +15,4 @@ or an item that wraps around the table securely
 $25 part $25 labor go figure........on your own average per restaurant?
 
 i also mentioned to coolerscreens.com about completely see through Samsung display technology as an improvement to the store fridge with a digital display built-in
+https://youtu.be/mchO1gVr1EQ
