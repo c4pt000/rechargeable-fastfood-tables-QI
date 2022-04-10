@@ -20,7 +20,10 @@ i also mentioned to coolerscreens.com about completely see through Samsung displ
 
 
 
-https://youtu.be/mchO1gVr1EQ
+
 
 # Samsung see through transparent display technology could also be applied to the see through glass door as an improvement to coolerscreens advancement of store refrigerators that they are marketing as improvement with Samsung and other 3rd party manufacturers
+
+
+# https://youtu.be/mchO1gVr1EQ
 ![s1](https://github.com/c4pt000/rechargeable-fastfood-tables-QI/raw/main/ezgif-4-a858fa222b.gif)
