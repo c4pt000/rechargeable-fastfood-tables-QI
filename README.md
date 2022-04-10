@@ -15,4 +15,9 @@ or an item that wraps around the table securely
 $25 part $25 labor go figure........on your own average per restaurant?
 
 i also mentioned to coolerscreens.com about completely see through Samsung display technology as an improvement to the store fridge with a digital display built-in
+# about coolerscreens fridge display
+![s1](https://github.com/c4pt000/rechargeable-fastfood-tables-QI/raw/main/3-DoorFullScreen_ForGif_1.gif)
+
+
+
 https://youtu.be/mchO1gVr1EQ
